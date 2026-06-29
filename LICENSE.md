@@ -1,4 +1,4 @@
-# 
+# Elite scalping trading bot plugins for Mac OS | Profissional scalping trading bot plugins for PC Windows. Featuring pools de liquidez DEX and API de exchange centralizada — optimized for maximum performance.
 
 
 
